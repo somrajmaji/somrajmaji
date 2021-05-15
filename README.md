@@ -1,4 +1,4 @@
-### Hi there 
+https://img.shields.io/badge/-Hi%20There...-yellowgreen
                   
                     I am Somraj Maji ♂️ ..... 
                     
