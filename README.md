@@ -1,4 +1,8 @@
-### Hi there 👋
+### Hi there 
+                  
+                    I am Somraj Maji ♂️ ..... 
+                    
+                            I love 🤟.... 🎰 Learning and Artificial Intelligence
 
 
 
